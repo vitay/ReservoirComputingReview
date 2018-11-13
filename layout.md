@@ -5,6 +5,5 @@ h0crk1hpkr4.html
 av4dicpvouo.html
 figures/miconi
 7qmr2fvefqo.html
-bdhm6qqcb58.html
 figures/bourjaily
 brst6d1f9s.html
